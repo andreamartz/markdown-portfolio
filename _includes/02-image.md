@@ -1,1 +1,0 @@
-![Image of Andrea](Andrea-prof.jpg)
